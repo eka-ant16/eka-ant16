@@ -16,7 +16,7 @@ Currently I am open to any opportunity especially in IT as a Web Developer.
     - 👯 I’m looking to collaborate on ... </br>
     - 🤔 I’m looking for help with ... </br>
     - 💬 Ask me about anything.</br>
-    - 📫 How to reach me: <a href="muktieka44@gmail.com">Email me!</a>  </br>
+    - 📫 How to reach me: <a href="wa.me/6281225877846">Email me!</a>  </br>
     - 😄 Pronouns: He/Him </br>
 </details>
 <p>
